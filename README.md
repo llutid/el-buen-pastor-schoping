@@ -1,1 +1,0 @@
-# el-buen-pastor-schoping
